@@ -1,0 +1,1 @@
+# ThisExpressionImMakingCompletelyCapturesWhatIWasThinkingInHawaii_IHatedMyJobAndIDidntKnowHowToLeave
